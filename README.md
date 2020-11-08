@@ -1,6 +1,6 @@
 # 2020 Election: Campaign contributions
 
-<a href=https://www.columbiaspectator.com/news/2020/11/06/columbia-affiliates-donated-far-more-to-biden-but-trump-fares-better-than-in-2016/>Columbia affiliates donated far more to Biden, but Trump fares better than in 2016.</a>.
+<a href=https://www.columbiaspectator.com/news/2020/11/06/columbia-affiliates-donated-far-more-to-biden-but-trump-fares-better-than-in-2016/>Columbia affiliates donated far more to Biden, but Trump fares better than in 2016</a>.
 
 ### **About the numbers**
 
